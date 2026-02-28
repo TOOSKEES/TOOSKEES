@@ -1,4 +1,4 @@
-# "AH, HELLO GORDON!"
+# "AH, HELLO GORDON!" ⭐
 
 /)(\ i play pony town eeyup
 
@@ -6,25 +6,28 @@
 
 /)(\ i have a hard time talking 2 people smtimes, sry if i come across as rude!
 
+## FANDOMS I’M IN / THINGS I LIKE! 🌘〰️🌒
 
-## FANDOMS I’M IN / THINGS I LIKE!
+- 🎮 **BALATRO**
+- 🎮 **CULT OF THE LAMB**
+- 🎮 **DOOM**
+- 🎮 **HALF-LIFE / HLVRAI**
+- 🎮 **OVERWATCH**
+- 🎮 **RISK OF RAIN 2**
+- 🎮 **TEAM FORTRESS 2**
+- 🎮 **TOMODACHI LIFE**
+- 🎮 **UNDERTALE / DELTARUNE**
+<br/>
 
-- **DOOM**
-- **MLP:FIM**
+- 📺 **MLP:FIM**
      **+ tamers12345**
-- **OVERWATCH**
-- **CULT OF THE LAMB**
-- **HALF-LIFE / HLVRAI**
-- **TEAM FORTRESS 2**
-- **VINESAUCE**
-- **BALATRO**
-- **RISK OF RAIN 2**
-- **UNDERTALE / DELTARUNE**
-- **STARTERS**
-- **TOMODACHI LIFE**
-- **SMILING FRIENDS**
+- 📺 **SMILING FRIENDS**
+- 📺 **STARTERS**
+- 📺 **VENTURE BROS**
+- 📺 **VINESAUCE**
 
-## ARTISTS I LIKE  
+
+## ARTISTS I LIKE 🎶
    (i recommend giving all these a listen!)
 
 - **100 GECS**
