@@ -1,4 +1,4 @@
-# "I HAVE NO GUILT WEIGHING ON MY CONSCIOUS, GORDON. CAN YOU SAY THE SAME?"
+# "AH, HELLO GORDON!"
 
 /)(\ i play pony town eeyup
 
@@ -16,11 +16,13 @@
 - **CULT OF THE LAMB**
 - **HALF-LIFE / HLVRAI**
 - **TEAM FORTRESS 2**
+- **VINESAUCE**
 - **BALATRO**
 - **RISK OF RAIN 2**
 - **UNDERTALE / DELTARUNE**
 - **STARTERS**
-  
+- **TOMODACHI LIFE**
+- **SMILING FRIENDS**
 
 ## ARTISTS I LIKE  
    (i recommend giving all these a listen!)
