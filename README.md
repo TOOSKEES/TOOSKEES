@@ -19,6 +19,7 @@
 - 🎮 **UNDERTALE / DELTARUNE**
 <br/>
 
+- 📺 **MAMMAL SQUAD**
 - 📺 **MLP:FIM**
      **+ tamers12345**
 - 📺 **SMILING FRIENDS**
