@@ -4,6 +4,8 @@
 
 /)(\ feel free 2 add me on ponytown or discord! (@tooskees)
 
+/)(\ basic DNI criteria, i block freely
+
 /)(\ i have a hard time talking 2 people smtimes, sry if i come across as rude!
 
 ## FANDOMS I’M IN / THINGS I LIKE! 🌘〰️🌒
