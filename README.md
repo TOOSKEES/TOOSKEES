@@ -15,6 +15,7 @@
 - 🎮 **DOOM**
 - 🎮 **HALF-LIFE / HLVRAI**
 - 🎮 **OVERWATCH**
+- 🎮 **PEGGLE**
 - 🎮 **RISK OF RAIN 2**
 - 🎮 **TEAM FORTRESS 2**
 - 🎮 **TOMODACHI LIFE**
