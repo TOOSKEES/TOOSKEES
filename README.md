@@ -17,6 +17,7 @@
 - 🚫 **Lolicon / Shotacon**
 - 🚫 **Nazi, Right Wing, Zionist etc.**
 - 🚫 **General Weirdos**
+- 🚫 **minors on the 18+ server**
 - 🚫 **those 4chan mlp fans u kno who u r**
 - **i can & will block freely, i also mute advertisers @ docks**
 <br/>
