@@ -8,8 +8,7 @@
 
 /)(\ i have a hard time talking 2 people smtimes, sry if i come across as rude!
 
-## FANDOMS I’M IN / THINGS I LIKE! 🌘〰️🌒
-
+<h1 align="center">FANDOMS I’M IN / THINGS I LIKE! 🌘〰️🌒</h1>
 - 🎮 **BALATRO**
 - 🎮 **CULT OF THE LAMB**
 - 🎮 **DOOM**
@@ -32,7 +31,7 @@
 - 📺 **VINESAUCE**
 
 
-## ARTISTS I LIKE 🎶
+<h1 align="center">## ARTISTS I LIKE 🎶</h1>
    (i recommend giving all these a listen!)
 
 - **100 GECS**
