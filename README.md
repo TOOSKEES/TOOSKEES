@@ -2,13 +2,28 @@
 
 /)(\ i play pony town eeyup
 
-/)(\ feel free 2 add me on ponytown or discord! (@tooskees)
-
-/)(\ basic DNI criteria, i hide freely
+/)(\ feel free 2 add me on ponytown r discord! (@tooskees)
 
 /)(\ i have a hard time talking 2 people smtimes, sry if i come across as rude!
+<br/>
+
+<h1 align="center">BYI / DNI 🚫</h1>
+<br/>
+
+- 🚫 **Queerphobic**
+- 🚫 **Misogynistic**
+- 🚫 **Racist, Sexist, Ableist, etc.**
+- 🚫 **Incest, Proship, Darkship etc.**
+- 🚫 **Lolicon / Shotacon**
+- 🚫 **Nazi, Right Wing, Zionist etc.**
+- 🚫 **General Weirdos**
+- 🚫 **those 4chan mlp fans u kno who u r**
+- **i can & will block freely, i also mute advertisers @ docks**
+<br/>
 
 <h1 align="center">FANDOMS I’M IN / THINGS I LIKE! 🌘〰️🌒</h1>
+<br/>
+
 - 🎮 **BALATRO**
 - 🎮 **CULT OF THE LAMB**
 - 🎮 **DOOM**
