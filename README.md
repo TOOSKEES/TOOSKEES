@@ -1,6 +1,8 @@
 <h1 align="center">"AH, HELLO GORDON!" ⭐</h1>
 
-/)(\ i play pony town eeyup
+/)(\ i play pony town eeyup. i usually hang around docks or the bread line
+
+/)(\ pls dont copy my skins!
 
 /)(\ feel free 2 add me on ponytown r discord! (@tooskees)
 
