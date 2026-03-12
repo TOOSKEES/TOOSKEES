@@ -27,6 +27,7 @@
 - 🎮 **BALATRO**
 - 🎮 **CULT OF THE LAMB**
 - 🎮 **DOOM**
+- 🎮 **FNAF**
 - 🎮 **HALF-LIFE / HLVRAI**
 - 🎮 **OVERWATCH**
 - 🎮 **PEGGLE**
