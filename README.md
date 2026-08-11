@@ -51,7 +51,7 @@
 - 📺 **VINESAUCE**
 
 
-<h1 align="center">## ARTISTS I LIKE 🎶</h1>
+<h1 align="center">ARTISTS I LIKE 🎶</h1>
    (i recommend giving all these a listen!)
 
 - **100 GECS**
