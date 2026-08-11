@@ -1,6 +1,6 @@
 <h1 align="center">"AH, HELLO GORDON!" ⭐</h1>
 
-/)(\ i play pony town eeyup. i usually hang around docks or the bread line
+/)(\ i play pony town (SHOCKER!!!!!!)). i usually hang around docks or the bread line
 
 /)(\ pls dont copy my skins!
 
@@ -29,6 +29,7 @@
 
 - 🎮 **BALATRO**
 - 🎮 **CULT OF THE LAMB**
+- 🎮 **DEADLOCK**
 - 🎮 **DOOM**
 - 🎮 **FNAF**
 - 🎮 **HALF-LIFE / HLVRAI**
